@@ -1,2 +1,2 @@
 # hello-world
-Cause they told me to
+Cause I need the points
